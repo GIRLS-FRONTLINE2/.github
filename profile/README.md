@@ -3,6 +3,7 @@
 **GIRLS' FRONTLINE 2: EXILIUM** is a 3D strategy RPG developed by Darkwinter Software Co Ltd, available for both PC and mobile platforms. This game immerses players in a post-apocalyptic world where they command Tactical Dolls (T-Dolls) in strategic battles. The Mod APK version offers enhancements such as ad removal and speed modifications, providing a more streamlined gaming experience.
 
 ## [Download GIRLS' FRONTLINE 2: EXILIUM 🕹️ Free Mod APK Now](https://www.dogapk.com/games/strategy/girls-frontline-2-exilium-mod-apk-1-0-remove-adsmod-speed/)
+![ce2949f0e7f5964c3683e389885692e63de02d25](https://github.com/user-attachments/assets/15714194-0325-4275-bfea-783b52a6610f)
 
 ---
 
@@ -20,7 +21,7 @@ Set in a dystopian future, **GIRLS' FRONTLINE 2: EXILIUM** continues the narrati
 4. **Global Fandom**: A strong community that frequently discusses updates, strategies, and tier lists.
 
 ## [Download GIRLS' FRONTLINE 2: EXILIUM 🕹️ Free Mod APK Now](https://www.dogapk.com/games/strategy/girls-frontline-2-exilium-mod-apk-1-0-remove-adsmod-speed/)
-![ce2949f0e7f5964c3683e389885692e63de02d25](https://github.com/user-attachments/assets/b1be3d6a-80a0-4b0e-b525-af18530ace69)
+![WX20241205-163453@2x](https://github.com/user-attachments/assets/d0d7b264-a02d-4126-b24d-ff0d56749ade)
 
 ---
 
@@ -44,8 +45,7 @@ Set in a dystopian future, **GIRLS' FRONTLINE 2: EXILIUM** continues the narrati
 | **Tier Lists and Codes**    | Stay competitive by utilizing **girls frontline 2 exilium tier list** and redeeming codes. |
 
 ## [Download GIRLS' FRONTLINE 2: EXILIUM 🕹️ Free Mod APK Now](https://www.dogapk.com/games/strategy/girls-frontline-2-exilium-mod-apk-1-0-remove-adsmod-speed/)
-![header (2)](https://github.com/user-attachments/assets/ae266234-68f9-4e06-978a-67b64e24332c)
-![Uploading WX20241205-163708@2x.png…]()
+
 
 ---
 
